@@ -1,4 +1,4 @@
-# chapter04 光の小説
+# chapter04 光之小说 (lightnovel)
 
 ### 1 朝の公園
 
