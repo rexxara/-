@@ -35,3 +35,5 @@
 未沙酱
 
 玛丽
+
+light novel部
